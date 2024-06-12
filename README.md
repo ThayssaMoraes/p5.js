@@ -1,4 +1,4 @@
-# js.thayssa
+# Thayssa
 BEM VINDOS AO MEU PERFIL 💙💙
 
 Meu nome é Thayssa Moraes
